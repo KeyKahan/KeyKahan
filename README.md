@@ -4,13 +4,12 @@
 
 
 
-Assistant Professor of Cybersecurity
-
+Cybersecurity Student Athlete at Utica University
 
 
 ## Objective
 
-Experienced Software Design Engineer with a demonstrated history of working in the Information Technology & Services industry.
+Experienced Software Design Engineer
 
 
 
